@@ -1,6 +1,6 @@
 # um poema cai na terra
 
-https://x.jose.cx
+http://umpoemacainaterra.art/
 
 The work is a video-poem, created as a screen capture in which who reads/watches can follow the whole creation process of the poem, written and captured by Renata Froan. The intent is that viewers-readers can have an immersive experience, while the artist is creating the poem, as they were seeing exactly what she sees, in the moment of the creation. 
 
